@@ -1,0 +1,1 @@
+# Registro-de-desplazamiento---74LS194
